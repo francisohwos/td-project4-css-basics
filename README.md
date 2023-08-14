@@ -1,0 +1,1 @@
+This project is about Oghenedoro, an Instinctinct hub student. The project contains 5 sections. I am glad to be making this project. Do well to follow me on my social media handles.
